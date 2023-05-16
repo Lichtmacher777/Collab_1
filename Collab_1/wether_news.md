@@ -9,4 +9,4 @@ It's raining in Berlin & sunny in Los Angeles.
 
 ![image](https://static.lingoneo.org/img/medialib/_1071706322__w800_21of800-13of562-558of800-550of562.jpg)
 
-# Stay healthy!
+# Stay healthy & Be positiv!
